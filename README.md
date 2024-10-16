@@ -1,3 +1,5 @@
+<img src=".github/DRINKING WATER.webp">
+
 # O Poder de um Bom Copo d’Água: Como Prepará-lo com Precisão
 
 ## Introdução
