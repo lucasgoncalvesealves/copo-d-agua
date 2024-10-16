@@ -1,4 +1,4 @@
-<img src=".github/DRINKING WATER.webp">
+<img src=".github/copodagua.png">
 
 # O Poder de um Bom Copo d’Água: Como Prepará-lo com Precisão
 
