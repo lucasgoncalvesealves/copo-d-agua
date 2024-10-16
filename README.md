@@ -8,7 +8,7 @@ Um copo d'água é a solução mágica e transparente para sua sede, composta po
 ## Benefícios
 Além de matar a sede, a água te deixa mais alerta, ajuda seu corpo a funcionar direitinho e até melhora a pele! Dá aquele boost no cérebro, te faz sentir mais leve, e ainda é zero calorias. É basicamente o herói da sua saúde, disfarçado de líquido comum.
 
-## Como preparar um copo d'água, passo a passo
+## Preparo
 1. Pegue um copo (sim, isso é importante).  
 2. Abra a torneira, ou pegue a garrafa de água.  
 3. Encha o copo até o ponto que seu coração mandar.  
