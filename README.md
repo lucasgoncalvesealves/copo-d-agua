@@ -21,3 +21,7 @@ Quer dar um toque especial? Joga umas rodelas de limão, folhinhas de hortelã o
 Se você curtiu essas dicas refrescantes, vem me seguir nas redes sociais! Lá tem muito mais conteúdo leve e saudável pra você. Bora trocar ideia e manter a hidratação em dia? Encerro este artigo com as sábias palavras da saudosa Bonequicha, do Mundo Canibal: "me dá um copo d'água".
 
 **#HidrataçãoÉVida #ÁguaComEstilo #BebaMaisÁgua**
+
+Ilustração de capa gerada por Lexica.
+Conteúdo gerado por ChatGPT. 
+Frase final e revisão por Gonçalves Alves
