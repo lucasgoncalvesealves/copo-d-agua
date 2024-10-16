@@ -1,4 +1,4 @@
-<img src=".github/copodagua.png">
+<img src="copodagua.png">
 
 # O Poder de um Bom Copo d’Água: Como Prepará-lo com Precisão
 
