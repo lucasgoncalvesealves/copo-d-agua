@@ -22,6 +22,9 @@ Se você curtiu essas dicas refrescantes, vem me seguir nas redes sociais! Lá t
 
 **#HidrataçãoÉVida #ÁguaComEstilo #BebaMaisÁgua**
 
+
 Ilustração de capa gerada por Lexica.
+
 Conteúdo gerado por ChatGPT. 
+
 Frase final e revisão por Gonçalves Alves
